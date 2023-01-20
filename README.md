@@ -1,4 +1,4 @@
-# Efraime Qejoa 👋
+# Siziwe Qejoa 👋
 
 Self-driven Information Technology Specialist👨‍💻
 > Creativity has no limits🚀hence it is one of my powerful soft skills. ||
